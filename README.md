@@ -8,7 +8,7 @@
 
 支持信用网、现金网、代理系统、银行卡、USDT 充值等。
 
-> -联系小飞机：bocaiyuanma2023
+> -联系小飞机：ruanjiankaifa2024  https://t.me/ruanjiankaifa2024
 > -可以包部署、运维、二次定制等。
 
 > -对接平台 18 家：AG、BG、亚星、CQ9、IM体育电竞、FG、开源棋牌、雷火、SWG、MG、DG、VR、VG、欧博、沙巴、PG电子、JDB电子、IG彩票、BBIN。
